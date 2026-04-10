@@ -1,0 +1,1 @@
+# 241712041_Gabriel_Pardede_Responsi_AI
